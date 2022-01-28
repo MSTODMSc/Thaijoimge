@@ -1,0 +1,2 @@
+# Thaijoimge
+เก็บรูปthaijo
